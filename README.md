@@ -1,0 +1,6 @@
+- Hi, I’m Narwhalbob2975
+- she/her/he/him/they/them
+- I’m interested in coding
+- I’m currently re-learning Javascript
+- Reach me at Narwhalbob (discord)
+- have a nice day! :3
